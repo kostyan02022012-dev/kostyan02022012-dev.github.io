@@ -1,1 +1,1 @@
-This is a joke test site that will curse you out from head to toe. Be careful with it! XD
+This is a site about me and my friends. It’s in Russian, my friends—use a translator!
